@@ -1,1 +1,1 @@
-#https://phantom9997.github.io/molodoichelovekiliza/
+#https://phantom9997.github.com/molodoichelovekiliza/
